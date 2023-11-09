@@ -7,3 +7,7 @@ estou bem vamos embora
 
 je suis tres bien merci
 la biblio est silencieuse le jeudi
+
+jai pas fait mes trucs de chimies
+jai un controle et un tp
+cest la merde
