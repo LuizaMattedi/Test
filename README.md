@@ -11,3 +11,6 @@ la biblio est silencieuse le jeudi
 jai pas fait mes trucs de chimies
 jai un controle et un tp
 cest la merde
+
+enfin les chats sont tres mignons
+chat poisson chien plante cest gateau
